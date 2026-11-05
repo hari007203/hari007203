@@ -3,7 +3,7 @@
 Fresher Software Engineer (Java) building backend systems with real security awareness — not just tutorial projects.
 
 📍 Gudivada, Andhra Pradesh, India | Open to relocation  
-📧 harichilumuri007@gmail.com | 📱 9985529909  
+📧 srihari.chilumuri@gmail.com | 📱 9985529909  
 🔗 [LinkedIn](https://linkedin.com/in/hari-chilumuri-16297b2b5)
 
 ---
